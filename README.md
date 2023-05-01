@@ -1,1 +1,1 @@
-# Projects I did in my free time
+# Some things I worked on in my free time
